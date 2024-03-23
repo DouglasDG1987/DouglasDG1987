@@ -2,11 +2,11 @@
 
 
 #### Olá! eu me chamo Douglas Gabriel, sou estudante do Ensino Médio e Técnico de Desenvolvimento de Sistemas.
-- Atualmente  eu não trabalho, apenas estudo no Senac MedioTec
-- Estou aprendendo  no curso de desenvolvimento de sistema
-- Procuro colaborar com meus amigos para termos um ótimo futuro pela frente.
-- 🤔 Procuro ajuda com professores profissionais para ter um futuro bom pela frente!
-- 📫 Como chegar até mim?: intzakinator@gmail.com
-- 😄 Pronomes: Ele/Dele
-- ⚡ Curiosidades: Gosto de assistir animes, ler livros, assistir séries e filmes, jogar e praticar programação!
+- 🏫Atualmente estudo no Senac MedioTec
+- 🎮Aprendiz de Análise e Desenvolvimento de Sistema
+- 🤔Procuro colaborar com meus amigos para termos um ótimo futuro pela frente.
+- 🤔Procuro ajuda com professores profissionais para ter um futuro bom pela frente!
+- 📫Como chegar até mim?: intzakinator@gmail.com
+- 😄Pronomes: Ele/Dele
+- ⚡Curiosidades: Gosto de assistir animes, ler livros, assistir séries e filmes, jogar e praticar programação!
 
