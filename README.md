@@ -8,5 +8,5 @@
 - 🤔Procuro ajuda com professores profissionais para ter um futuro bom pela frente!
 - 📫Como chegar até mim?: intzakinator@gmail.com
 - 😄Pronomes: Ele/Dele
-- ⚡Curiosidades: Gosto de assistir animes, ler livros, assistir séries e filmes, jogar e praticar programação!
+- ⚡Curiosidades: Gosto de assistir animes, Ler livros, Assistir Séries e Filmes, Jogar e Praticar Programação!
 
