@@ -1,4 +1,4 @@
-<img src="https://wallpapers.com/images/featured/cool-anime-6kbwj9794wpnsfr1.jpg" alt="500+] Cool Anime Wallpapers | Wallpapers.com"/>![Uploading image.png…]()
+<img src="https://wallpapers.com/images/featured/cool-anime-6kbwj9794wpnsfr1.jpg" alt="500+] Cool Anime Wallpapers | Wallpapers.com"/>
 
 
 #### Olá! eu me chamo Douglas Gabriel, sou estudante do Ensino Médio e Técnico de Desenvolvimento de Sistemas.
